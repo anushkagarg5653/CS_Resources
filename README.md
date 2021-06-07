@@ -34,6 +34,11 @@ https://discord.gg/gEk3qQNSTj
 
 https://discord.gg/VBDnbWVDTY
 
+https://discord.gg/Q3mkXk7w
+
+https://discord.gg/43DUEV2a
+
+https://discord.gg/JTs3SjHc
 
 
 
